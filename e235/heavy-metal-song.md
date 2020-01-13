@@ -57,3 +57,16 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 Once you've got all the parts of your song in place, the structure, the melodies, the riffs, the drums, and bass, it's time to start practicing. Work on the song until the band is tight together. As you play the song, listen for places you can make improvements. Talk over your ideas about the song with the band and change it as you all see fit.
 
 * Record the band playing the song so you can listen to it more closely. That way you can spend time analyzing the individual aspects of the song on your own time.
+
+### Note: 
+
+This ["How-to"](https://www.wikihow.com/Write-a-Metal-Song) originally appeared on WikiHow. I've reforatted here in Markdown as a demo.
+
+The images are from Flickr and liscensed to allow for modifications. 
+
+* [Heavy Metal Parking Lot](https://www.flickr.com/photos/revrev/6131091773/in/faves-142161312@N05/)
+* ['Heavey Metal' graffiti](https://www.flickr.com/photos/duncan/27081425793/in/faves-142161312@N05/)
+* [IMG-2187 "Big Black Cloud"](https://www.flickr.com/photos/driveangry3d/20625977036/in/faves-142161312@N05/)
+* [Exciter Heavey Metal Maniac](https://www.flickr.com/photos/digimeister/16127402785/in/photolist-qz89YH-qhza9h-qhH8GF-eSwm-Hg6oon-tA6pQr-h5B5eK-32Vxhr-2atvhUj-nUGQM6-2hrwQ1v-h5B3aV-DZ7ji1-9Ru4p8-agNPQK-49V1Pr-2dDSrZY-VSpL78-Cnx2HA-J1Xb-h5B3qp-h5B4KZ-h5BbAd-FFBXjM-h5CmQB-HGhj5i-gNQKVr-h5Bp73-h5BdSs-h5BqPm-aF5PJ2-hpE6y-7cgNB1-h5B3UR-24M4Kou-AKrf5-h5BcMG-2cVhDNs-h5Co9t-7Uyp22-c1xkx-h5B4xV-h5CoKt-h5CnXX-MWHsU-nRjCs-2hQLAbf-2hQ3Gdt-2hPPKZs-2hPy6sY)
+* [Heavy Metal Tees](https://www.flickr.com/photos/99817314@N04/14379918487/in/faves-142161312@N05/)
+* [IMG-2828 "Rabbits"](https://www.flickr.com/photos/99817314@N04/14379918487/in/faves-142161312@N05/)
