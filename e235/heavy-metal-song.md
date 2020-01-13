@@ -2,33 +2,31 @@
 
 Have a dream of being in a successful metal band but don't know how to start? There is no trick to making a good metal song. All you need is some knowledge of how to start, an idea of the sound you're aiming for, and like minded bandmates. These tips are also good for most other types of popular music. 
 
-![Metal dudes.]()
+![Metal dudes.](e235/heavy-metal/2.jpg)
 
 ## Step 1: Compose the Song
 
-![]()
+![Metal!](e235/heavy-metal/1.jpg)
 
-**Start with either a melody or a riff.** There's no surefire way to start writing a song, but most people start with either a guitar riff or a vocal melody. [1]
+**Start with either a melody or a riff.** There's no surefire way to start writing a song, but most people start with either a guitar riff or a vocal melody. 
 
 * Starting with a melody usually involves playing around with some chords on the guitar and singing over it until you find a melody you like. This can be the start of either the verse or the chorus of your song.
 
 * Starting with a riff usually involves working on the guitar until you come up with a good metal riff, something that's both catchy and driving.
 
 
-
 ## Step 2: Build the Song's Structure
 
-![]()
+![Songs!](e235/heavy-metal/6.jpg)
 
 **A metal song, like rock and pop, is usually made up of a combination of verse, chorus, and bridge, with an optional intro and outro.** You'll need to work with your rhythm guitarist to create a structure based around the original riff or melody you came up with. Create a chord progression for your verse and chorus, and decide if the song needs a bridge.
 
 * The basic song structure of rock and metal songs goes: intro, verse, chorus, verse, solo, chorus, chorus, outro.
 
 
-
 ## Step 3: Add Drums and Bass
 
-![]()
+![Bass!](e235/heavy-metal/5.jpg)
 
 **After your song has a basic structure, it's time to add drums and bass.** There isn't really any trick to this, other than jamming through the song with your drummer, rhythm guitarist, and bassist until your drummer and bassist have a sense of the song and what kind of beats and bass lines will work in each part.[3]
 
@@ -36,7 +34,7 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 
 ## Step 4: Add lead guitar optionally. 
 
-![]()
+![Guitar!](e235/heavy-metal/4.jpg)
 
 **If you've got a lead guitarists, now is the time to add some lead guitar melodies to your song.** It's best to try to find guitar melodies that compliment the vocal melody, and don't get in the way of it. 
 
@@ -52,8 +50,18 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 
 ## Step 5: Practice the song and work out the details. 
 
-![]()
+![Practice!](e235/heavy-metal/3.jpg)
 
 Once you've got all the parts of your song in place, the structure, the melodies, the riffs, the drums, and bass, it's time to start practicing. Work on the song until the band is tight together. As you play the song, listen for places you can make improvements. Talk over your ideas about the song with the band and change it as you all see fit.
 
 * Record the band playing the song so you can listen to it more closely. That way you can spend time analyzing the individual aspects of the song on your own time.
+
+
+
+
+
+
+
+
+
+
