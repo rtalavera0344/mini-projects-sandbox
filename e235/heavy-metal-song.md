@@ -68,7 +68,7 @@ The images are from Flickr and liscensed to allow for modifications.
 * ['Heavey Metal' graffiti](https://www.flickr.com/photos/duncan/27081425793/in/faves-142161312@N05/)
 * [IMG-2187 "Big Black Cloud"](https://www.flickr.com/photos/driveangry3d/20625977036/in/faves-142161312@N05/)
 * [Exciter Heavey Metal Maniac](https://www.flickr.com/photos/digimeister/16127402785/in/photolist-qz89YH-qhza9h-qhH8GF-eSwm-Hg6oon-tA6pQr-h5B5eK-32Vxhr-2atvhUj-nUGQM6-2hrwQ1v-h5B3aV-DZ7ji1-9Ru4p8-agNPQK-49V1Pr-2dDSrZY-VSpL78-Cnx2HA-J1Xb-h5B3qp-h5B4KZ-h5BbAd-FFBXjM-h5CmQB-HGhj5i-gNQKVr-h5Bp73-h5BdSs-h5BqPm-aF5PJ2-hpE6y-7cgNB1-h5B3UR-24M4Kou-AKrf5-h5BcMG-2cVhDNs-h5Co9t-7Uyp22-c1xkx-h5B4xV-h5CoKt-h5CnXX-MWHsU-nRjCs-2hQLAbf-2hQ3Gdt-2hPPKZs-2hPy6sY)
-* [Heavy Metal Tees](https://www.flickr.com/photos/99817314@N04/14379918487/in/faves-142161312@N05/)
+## * [Heavy Metal Tees](https://www.flickr.com/photos/99817314@N04/14379918487/in/faves-142161312@N05/)
 * [IMG-2828 "Rabbits"](https://www.flickr.com/photos/99817314@N04/14379918487/in/faves-142161312@N05/)
 
 
