@@ -52,7 +52,7 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 
 ## Step 5: Practice the song and work out the details. 
 
-![Practice!](https://github.com/jloan/mini-projects-sandbox/blob/master/e235/heavy-metal/3.jpg)
+![Practice!](https://www.google.com/imgres?imgurl=https%3A%2F%2Fdidgeproject.com%2Fwp-content%2Fuploads%2F2017%2F01%2Fbetter-drummer-how-to-dave-grohl.jpg&imgrefurl=https%3A%2F%2Fdidgeproject.com%2Fpercussion%2Fbecoming-a-better-drummer%2F&docid=jmQDUlQaN5PvvM&tbnid=F-vfImYu8ZhefM%3A&vet=10ahUKEwjItJTi4IbnAhUErZ4KHaYKBbgQMwh2KA0wDQ..i&w=1200&h=816&bih=510&biw=1163&q=heavy%20metal%20drummer%20practicing&ved=0ahUKEwjItJTi4IbnAhUErZ4KHaYKBbgQMwh2KA0wDQ&iact=mrc&uact=8)
 
 Once you've got all the parts of your song in place, the structure, the melodies, the riffs, the drums, and bass, it's time to start practicing. Work on the song until the band is tight together. As you play the song, listen for places you can make improvements. Talk over your ideas about the song with the band and change it as you all see fit.
 
