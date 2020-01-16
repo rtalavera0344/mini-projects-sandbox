@@ -8,7 +8,6 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 
 ## Step 1: Compose the Song
 
-![Metal!](https://github.com/jloan/mini-projects-sandbox/blob/master/e235/heavy-metal/1.jpg)
 
 **Start with either a melody or a riff.** There's no surefire way to start writing a song, but most people start with either a guitar riff or a vocal melody. 
 
