@@ -28,6 +28,7 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 ## Step 3: Add Drums and Bass
 
 ![Bass!](https://img.discogs.com/PDCEMsKh8K06O3hrq1DEcwEj1po=/600x923/smart/filters:strip_icc():format(jpeg):mode_rgb():quality(90)/discogs-images/A-77192-1560366356-9261.jpeg.jpg)
+Maybe add an image with a drum in the background.
 
 **After your song has a basic structure, it's time to add drums and bass.** There isn't really any trick to this, other than jamming through the song with your drummer, rhythm guitarist, and bassist until your drummer and bassist have a sense of the song and what kind of beats and bass lines will work in each part.[3]
 
